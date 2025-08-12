@@ -1,1 +1,0 @@
-# mind-notes-universe
